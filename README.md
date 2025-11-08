@@ -1,1 +1,0 @@
-# ejes-y-amortiguadores
